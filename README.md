@@ -1,5 +1,5 @@
 # My Porfolio
-Below is a link to a my porfolio website. Enjoy!
+Enjoy!
 
 
 
